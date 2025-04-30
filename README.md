@@ -1,4 +1,4 @@
-
+![Alt Text](https://github.com/staylazy/staylazy/blob/main/aniyuki-black-and-white-anime-5.gif?raw=true)
 
 <!--
 ## Hi there 👋
